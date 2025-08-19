@@ -9,4 +9,4 @@
 - Me encanta aprender y construir algo nuevo, productivo, innovador y creativo.
 - 👯 He colaborado en repositorios de codigo abierto.
 
-
+[LinkedIn](https://www.linkedin.com/in/sheyla-daza-tobias)
